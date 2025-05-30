@@ -36,6 +36,9 @@
 
 <summary>most recent art i made TW yaoi</summary>
 
+my oh cees heh..
+![image](https://github.com/user-attachments/assets/9d197cfb-fbdb-47be-b117-ef2c376c397b)
+
 ![thruce](https://github.com/user-attachments/assets/0000e711-1223-4dc6-89ea-e7327d4468f0)
 
 ![image](https://github.com/user-attachments/assets/2a4eada1-4cce-453d-8fcc-2ae3d1aed3c0)
