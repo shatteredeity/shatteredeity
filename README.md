@@ -17,7 +17,7 @@
 ![image](https://64.media.tumblr.com/e56fc374de7e73ea9826ebb7ddf1e08d/45dcac56db69ca43-a8/s75x75_c1/7c0ef69ce22c36b41b13f9d611c556982a2e1587.gifv)
 ![image](https://64.media.tumblr.com/01048ccb31c4d02b1e64d0a506f5fffd/92b6402e4022ca16-f5/s75x75_c1/96e9af32ab0b3f36a7a01399a3ab6e8f81c64ca3.gifv)
  
- $${\color{orange}![image](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/f8c413e838a06160-5c/s75x75_c1/de9cb1ece707f125692b4992d940e2c14bd80a78.gifv) **thor**, \space the \space god \space of \space thunder}$$
+$${\color{orange}![image](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/f8c413e838a06160-5c/s75x75_c1/de9cb1ece707f125692b4992d940e2c14bd80a78.gifv) **thor**, \space the \space god \space of \space thunder}$$
 
 ***dnc***, i block freely ![image](https://64.media.tumblr.com/71dbfb03d9f3151dbbbffc7fff37ecab/cf53b60cec017c02-96/s75x75_c1/90d5bbb549d4d8eabac366bd34a76f13a4d0ba5b.gifv)
 
