@@ -25,8 +25,13 @@ can you tell i like thruce.
 
 <summary>most recent art i made TW yaoi</summary>
 
-my oh cees heh..
-![image](https://github.com/user-attachments/assets/9d197cfb-fbdb-47be-b117-ef2c376c397b)
+![image](https://github.com/user-attachments/assets/546b92ce-7673-499a-92e2-2f22bb92c72f)
+
+![image](https://github.com/user-attachments/assets/87b0a5f2-2250-4bb9-bcd3-d6930528cf91)
+
+![image](https://github.com/user-attachments/assets/6218779c-c3d0-4c75-a617-8961ce2e544e)
+
+![image](https://github.com/user-attachments/assets/f3730771-64fa-4cd8-9847-4ccbaf0f6b7f)
 
 ![thruce](https://github.com/user-attachments/assets/0000e711-1223-4dc6-89ea-e7327d4468f0)
 
