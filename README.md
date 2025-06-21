@@ -33,10 +33,6 @@ can you tell i like thruce.
 
 ![image](https://github.com/user-attachments/assets/f3730771-64fa-4cd8-9847-4ccbaf0f6b7f)
 
-![thruce](https://github.com/user-attachments/assets/0000e711-1223-4dc6-89ea-e7327d4468f0)
-
-![image](https://github.com/user-attachments/assets/2a4eada1-4cce-453d-8fcc-2ae3d1aed3c0)
-
 
 </details>
 
