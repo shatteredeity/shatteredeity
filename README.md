@@ -2,6 +2,8 @@
 
 ![image](https://github.com/user-attachments/assets/f0d745de-090e-4ab0-807b-9f4442cf0656)
 
+![blinkiesCafe-No](https://github.com/user-attachments/assets/8f50704e-a354-46a0-bbbd-897f8eadbf3a)
+
 art by me ^,_,^ 
  
 ![Prince](https://github.com/user-attachments/assets/e7ac4e08-ec0a-4dd5-ab68-e91f2084af18)
