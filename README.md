@@ -8,10 +8,6 @@ art by me ^,_,^
  
 ![Prince](https://github.com/user-attachments/assets/e7ac4e08-ec0a-4dd5-ab68-e91f2084af18)
 
-https://github.com/user-attachments/assets/16534010-34c4-4db5-a565-76da6342cd6f
-
-
-(my old user was kasualrot btw!)
 wip :-)
 can you tell i like thruce.
 
@@ -34,6 +30,8 @@ can you tell i like thruce.
 ![image](https://github.com/user-attachments/assets/6218779c-c3d0-4c75-a617-8961ce2e544e)
 
 ![image](https://github.com/user-attachments/assets/f3730771-64fa-4cd8-9847-4ccbaf0f6b7f)
+
+https://github.com/user-attachments/assets/16534010-34c4-4db5-a565-76da6342cd6f
 
 
 </details>
