@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/f0d745de-090e-4ab0-807b-9f4442cf0656)
 
-![blinkiesCafe-No](https://github.com/user-attachments/assets/8f50704e-a354-46a0-bbbd-897f8eadbf3a)
+![blinkiesCafe-hA](https://github.com/user-attachments/assets/c1569452-5204-469a-bfc5-1570e7b42c0c)
 
 art by me ^,_,^ 
  
