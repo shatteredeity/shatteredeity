@@ -6,7 +6,12 @@ art by me ^,_,^
  
 ![Prince](https://github.com/user-attachments/assets/e7ac4e08-ec0a-4dd5-ab68-e91f2084af18)
 
+https://github.com/user-attachments/assets/16534010-34c4-4db5-a565-76da6342cd6f
+
+
+(my old user was kasualrot btw!)
 wip :-)
+can you tell i like thruce.
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31i3xznaz732qjaqee5zknobzmuy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=d38c22&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
